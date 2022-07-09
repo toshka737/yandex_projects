@@ -30,4 +30,4 @@
 
 ### Презентация
 
-Презентация:
+Презентация:https://drive.google.com/file/d/1w8P6ENyh6uG3Q9t_j8s_FfZgoTln6HUM/view?usp=sharing
